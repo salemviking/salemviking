@@ -1,8 +1,8 @@
 # Shawn Doherty
 
-**DevOps Engineer** | Boston, MA
+**DevOps Engineer**
 
-[Email](mailto:shawndoherty24238@gmail.com) • [Phone](tel:+19788610777)
+shawndoherty24238@gmail.com • (978) 861-0777 • Braintree, MA 02184
 
 ![Profile Views](https://visitor-badge.laobi.icu/badge?page_id=salemviking.salemviking&left_color=gray&right_color=blue)
 
