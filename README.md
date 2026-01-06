@@ -4,7 +4,7 @@
 
 shawndoherty24238@gmail.com • (978) 861-0777 • Braintree, MA 02184
 
-![Profile Views](https://visitor-badge.laobi.icu/badge?page_id=salemviking.salemviking&left_color=gray&right_color=blue)
+![Profile Views](https://komarev.com/ghpvc/?username=salemviking&color=blue)
 
 ---
 
